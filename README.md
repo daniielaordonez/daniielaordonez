@@ -8,4 +8,5 @@
 - 📫 How to reach me: ...
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: 
+- 📫 How to reach me: a20193426@pucp.edu.pe / oa_daniela@hotmail.com
 -->
